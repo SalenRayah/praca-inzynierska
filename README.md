@@ -1,2 +1,0 @@
-# praca-inzynierska
-Praca inżynierska
